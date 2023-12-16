@@ -1,8 +1,4 @@
-- 👋 Hi, I’m @Kyosant
-- 👀 I’m interested in your mother
-- 🌱 I’m currently learning vex stuff
-- 💞️ I’m looking to collaborate on your mom
-- 📫 How to reach me ask your mom
+Leave me alone 💀😭
 
 <!---
 Kyosant/Kyosant is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
